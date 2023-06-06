@@ -1,4 +1,4 @@
-### Aloha 🌋
+### Aloha 🌋 Diandra S.
 
 Multi-faceted visual creative professional majoring in mental behavorial health desiring to empower and enlighten individuals through visual arts within technology.<br> 
 <br>
