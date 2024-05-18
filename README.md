@@ -1,4 +1,4 @@
-# Interdisciplinary Visual Artist *&* Design Seasoned Professional 👩🏻‍🔧👩🏻‍💻👩🏻‍🏫👩🏻‍🍳
+# Seasoned Transdisciplinary Fine Artist 👩🏻‍🔧👩🏻‍💻👩🏻‍🏫👩🏻‍🍳
 *former* Pastry Baker Artist *current* Mental Health Technician Student</br> 
 #### *Creating. Designing. Visualizing. Analyzing.*<br>from my little corner on the web<br> from an island where the lava flows🌋 *&* the highest mountain snows🗻</br>
 Passionate Enthusiast of Life.<br> 
